@@ -1,2 +1,2 @@
 # redefine-perfect
-redefine the beauti of code !!!
+redefine the beauty  of code !!!
